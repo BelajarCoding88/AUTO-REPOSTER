@@ -1,2 +1,2 @@
 # AUTO-REPOSTER
-TELE &amp; HUGO
+TELE &amp; LINK TREE
